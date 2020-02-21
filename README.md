@@ -1,1 +1,0 @@
-# amielsatvedi.github.io
